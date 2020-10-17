@@ -1,1 +1,1 @@
-This repository is tom mantain photos, links, curiosities... about Beyoncé :)
+This repository is to mantain photos, links, curiosities... about Beyoncé :)
